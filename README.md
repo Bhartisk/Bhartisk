@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on excel expert,<br>I'm lookin to collaborate on ,<br>I'm looking for help with ,<br>I'm currently learning cyber security, Data analytics,<br>Ask me about <br>Fun fact
+💱I'm currently working on excel expert <br>👬I'm lookin to collaborate on <br>🤝I'm looking for help with <br>🌱I'm currently learning cyber security, Data analytics<br>📨Ask me about <br>Fun fact ⤴️🪐🤝🏆🥇🎫🎟️🎪🎨🫟
 
 
 # 💻 Tech Stack:
